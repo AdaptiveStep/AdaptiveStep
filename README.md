@@ -1,7 +1,7 @@
 ## Some of my Activity last 30 days 
 <p float="left">
-  <img src="http://www.5z8.info/guns_ozed" width="400" />
-  <img src="http://www.5z8.info/b00bs_cbjx" width="400" /> 
+  <img src="shorturl.at/jlGM2" width="400" />
+  <img src="shorturl.at/admX1" width="400" /> 
 </p>
 
 ### Other Stats
