@@ -1,6 +1,6 @@
 ## Some of my Activity last 30 days 
 <p float="left">
-  <img src="https://shorturl.at/jlGM2" width="400" />
+  <img src="https://shorturl.at/jlGM2" width="400"  />
   <img src="https://shorturl.at/admX1" width="400" /> 
 </p>
 
